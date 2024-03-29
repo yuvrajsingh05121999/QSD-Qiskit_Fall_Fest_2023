@@ -72,7 +72,11 @@ Get ready to embark on the journey introducing you to the latest trends in acade
 
 ## Winners
 
--to be announced
+1.Umesh chandra Joshi
+2.Ashish Kumar
+3.Anurag K.S.V
+4.Rajesh Kumar
+5.Rohit P Thampy
 
 
 
